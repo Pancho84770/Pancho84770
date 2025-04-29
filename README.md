@@ -1,1 +1,3 @@
 # Pancho84770
+## ACERCA DE MI
+##### ¡Hola! Soy una persona apasionada por los videojuegos, especialmente Valorant, donde disfruto de la estrategia, el trabajo en equipo y la emoción de cada partida. Me encanta la música en todas sus formas, sin importar el género, ya que encuentro en ella una forma de expresión y acompañamiento para cada momento. Además, practico tenis de mesa, un deporte que me ayuda a mantenerme activo y a mejorar mi concentración y reflejos.
